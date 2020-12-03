@@ -37,19 +37,12 @@ Youtube频道：
 
 http://bit.ly/2uNgC78
 
-群主OD网盘:
-
-http://bit.ly/2vwuGCE
-
 群主谷歌网盘：
 
-http://bit.ly/2wjiOEo
+https://drive.google.com/drive/folders/14fgYztKnT2kjOo7Mpu_bTiqUqTYp6eYx
 
-## 8、如何支持悟空和赞助悟空？
 
-💝留言并为我发电：
 
-https://afdian.net/@wkdaily
 
 ### 未完待续
 
